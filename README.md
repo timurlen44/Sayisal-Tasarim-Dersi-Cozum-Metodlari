@@ -1,0 +1,1 @@
+# Sayisal-Tasarim-Dersi-Cozum-Metodlari-read.me
